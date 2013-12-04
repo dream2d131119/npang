@@ -1,2 +1,2 @@
 WELCOME TO NPPANG project!!
-Let's do work pleasantly~
+Let's do work pleasantly~~
